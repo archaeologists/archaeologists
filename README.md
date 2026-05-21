@@ -10,7 +10,7 @@
 </p>
 
 
-　 　　　　　　 　 　　　　　　　　　　 　　　　 　　　 [guns](https://guns.lol/laufeyson)　಄　[♬](https://open.spotify.com/track/2FwDApgXk91kXvqy2oB7dz?si=c9fcf1e50c6c45d6)
+　 　　　　　　 　 　　 　　　　　　　　 　　　 　 　　　 [guns](https://guns.lol/laufeyson)　಄　[♬](https://open.spotify.com/track/2FwDApgXk91kXvqy2oB7dz?si=c9fcf1e50c6c45d6)
 
 <p align="center">
 　 　　　　　　 　 　　　　　　　　　　 　　　　　　 　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　mom 　 ➼ ⠀ ⠀zuzu　　　　　　　 　　 　　　　　　 　 　　　　　　　　　　　　 　　 　　　　　　　　 　　 　　　　　　　　　　 　　 　　　　　　 　 　　　　　　　　 　 　　　　　　　　　　　　 　　　　　　　　　 　　 　　　　　　 　 　　　　　 　　　　　　 　 　　　　　　　　　 　　 　　　　　　 　 　　　　　　　cas 　 ⏖ ⠀ ⠀dray　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 　 𝜗 ⠀ ⠀tofu 　 ৎ　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　naxa 　 ⏖ 　 kyu
