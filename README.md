@@ -6,7 +6,7 @@
 
 　　　　　　　　　　 　　　　　　　　　　　 　　　　　　　꒰𓏼´  `𓏼  ྀིᥩ
 <p align="center">
-　 　　　　　　 　 　　　　　　　　　　 　　　　　　 　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　loki　╰　jiluka　　 　　　　　　　　　　 　　　　　　　　　　 　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　　　　　　he　any　angel
+　 　　　　　　 　 　　　　　　　　　　 　　　　　　 　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　loki　╰　sloan　　 　　　　　　　　　　 　　　　　　　　　　 　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　　　　　　he　any　angel
 </p>
 
 
