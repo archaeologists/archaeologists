@@ -6,7 +6,7 @@
 
 　　　　　　　　　　 　　　　　　　　　　　 　　　　　　　꒰𓏼´  `𓏼  ྀིᥩ
 <p align="center">
-　 　　　　　　 　 　　　　　　　　　　 　　　　　　 　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　loki　╰　sloan　　 　　　　　　　　　　 　　　　　　　　　　 　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　　　　　　he　any　angel
+　 　　　　　　 　 　　　　　　　　　　 　　　　　　 　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　loki　╰　sloan　　 　　　　　　　　　　 　　　　　　　　　　 　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　　　　　　he　any　pup
 </p>
 
 
