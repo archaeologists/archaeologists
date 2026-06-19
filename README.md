@@ -1,7 +1,7 @@
 
 
 <p align="center">
-<img width="500" height="300" src="https://files.catbox.moe/pmymnj.jpg">
+<img width="370" height="300" src="https://files.catbox.moe/b0b90q.png">
 </p>
 
 　　　　　　　　　　 　　　　　　　　　　　 　　　　　　　꒰𓏼´  `𓏼  ྀིᥩ
